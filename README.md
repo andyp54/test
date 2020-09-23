@@ -1,2 +1,2 @@
-PlayStation 5 Online Pre-registration is open
+Online Pre-registration is open
 
