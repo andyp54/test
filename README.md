@@ -1,2 +1,2 @@
-Online Pre-registration is open
+Online Pre-registration is ended.
 
