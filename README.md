@@ -1,1 +1,1 @@
-Playstation
+PlayStation
